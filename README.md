@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Arvin2019
 - 👀 I’m interested in n.o.t.h.i.n.g.
-- 🌱 I’m currently learning in yzzx.
+- 🌱 I’m currently learning in ～～yzzx～～ cuhk.
 - 💞️ I’m looking to collaborate on nothing 
 - 📫 How to reach me (doge)
 
